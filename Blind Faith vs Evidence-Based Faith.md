@@ -8,7 +8,7 @@ I'm not just talking about believing in a god; this applies to believing in anyt
 
 But could knowing too much be a problem? I'm debating this with myself. On one hand, it could be; on the other, it might not be. Maybe it's not even the right question to ask.
 
-Returning to the idea of <b>blind faith vs. evidence-based faith</b>, perhaps this too is the wrong approach. Blind faith can keep a person sane and worry-free. Balancing both is important, but perhaps more crucial is having "evidence-based blind faith." When you know something for sure, you can follow it blindly, knowing that everything will work out in the end.
+Returning to the idea of <b>blind faith vs. evidence-based faith</b>, perhaps this too is the wrong approach. Blind faith can keep a person sane and worry-free. Balancing both is important, but perhaps more crucial is having "<b>evidence-based blind faith</b>." When you know something for sure, you can follow it blindly, knowing that everything will work out in the end.
 
 Therefore, when it comes to blind faith, we should consider two types of blind-faith followers:
 
