@@ -14,10 +14,10 @@ Returning to the idea of blind faith vs. evidence-based faith, perhaps this too 
 Therefore, when it comes to blind faith, we should consider two types of blind-faith followers:
 
 - Pure Blind Followers:
-These individuals follow so blindly that they are doomed by their own dogma, trapped in their beliefs.
+  - These individuals follow so blindly that they are doomed by their own dogma, trapped in their beliefs.
 
 - Evidence-Informed Blind Followers:
-These individuals base their blind faith on enough evidence to secure their position.
+  - These individuals base their blind faith on enough evidence to secure their position.
 
 Logically, we know that nobody would willingly trust a killer or an abuser without evidence. Therefore, it makes sense to base our beliefs on evidence, enough to keep us sane.
 
