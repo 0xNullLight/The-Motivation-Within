@@ -4,7 +4,7 @@ God gave you a brain for a reason. It's about time people stop being blinded by 
 
 The more I delve into this topic, the more I realize the importance of <b>blind faith</b>. It provides comfort, allowing people to live a life sane enough to get by day by day. However, I believe <b>evidence-based faith</b> is even more crucial. Blind faith can be dangerous, and anyone who disagrees might not have faced its harsh consequences yet.
 
-I'm not just talking about believing in a god; this applies to believing in anything. If you don't know something, you remain ignorant of it. Understanding the bigger picture equips you to build a better foundation and improve yourself.
+I'm not just talking about believing in a god; this applies to believing in anything. <b>If you don't know something, you remain ignorant of it. Understanding the bigger picture equips you to build a better foundation and improve yourself.</b>
 
 But could knowing too much be a problem? I'm debating this with myself. On one hand, it could be; on the other, it might not be. Maybe it's not even the right question to ask.
 
