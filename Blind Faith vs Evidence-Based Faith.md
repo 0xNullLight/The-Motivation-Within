@@ -2,7 +2,7 @@
 
 God gave you a brain for a reason. It's about time people stop being blinded by their own dogma.
 
-The more I delve into this topic, the more I realize the importance of blind faith. It provides comfort, allowing people to live a life sane enough to get by day by day. However, I believe evidence-based faith is even more crucial. Blind faith can be dangerous, and anyone who disagrees might not have faced its harsh consequences yet.
+The more I delve into this topic, the more I realize the importance of <b>blind faith</b>. It provides comfort, allowing people to live a life sane enough to get by day by day. However, I believe <b>evidence-based faith</b> is even more crucial. Blind faith can be dangerous, and anyone who disagrees might not have faced its harsh consequences yet.
 
 I'm not just talking about believing in a god; this applies to believing in anything. If you don't know something, you remain ignorant of it. Understanding the bigger picture equips you to build a better foundation and improve yourself.
 
